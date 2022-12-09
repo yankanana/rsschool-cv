@@ -29,4 +29,4 @@ I'm 24 years old and now I work for IT company as an office manager. Hope that s
 ## English:
 
 My English level is B1. 
-In my life I've got a lot of practice: visiting different countries, working in hotel, working in international team.
+I've been having a lot of practice in my life like visiting different countries, working in hotel, working in international team.

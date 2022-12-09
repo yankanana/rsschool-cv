@@ -1,5 +1,3 @@
-![img](http://sun9-74.userapi.com/s/v1/ig2/zldXkLLrJBcrsC_uLTIE-x4FpQRxltgZlYJ-4ghzDbOSTmUotICMaGBRTiBmuWKELfhmM8EgziI2Ahjxd2o8ED4N.jpg?size=400x400&quality=96&crop=2,445,1212,1213&ava=1)
-
 # Yana Berdyeva
 
 ## Contact information:
